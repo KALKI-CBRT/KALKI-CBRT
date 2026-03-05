@@ -1,5 +1,5 @@
 # WHAT IS KALKI CBRT ?
-<img src="https://github.com/KALKI-CBRT/KALKI-CBRT/blob/main/Kalki.jpg" width="10%" align ="centre">
+<img src="https://github.com/KALKI-CBRT/KALKI-CBRT/blob/main/Kalki.jpg" width="10%" align ="center">
 
 Here the darkness shows anonymity and the glowing Swastika represents our good work.
 
