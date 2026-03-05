@@ -34,10 +34,6 @@ IF YOU ARE A GIRL SOMEONE HARASS/BLACKMAILS YOU ONLINE , MAIL AT cyberbabaresear
 ## CBRT (CYBER BABA RESEARCH TEAM)
   ### MEMBERS 
    -kalki
-   -lucifer
-   -tony
-   -rebel
-   -rifles
    ....
 
 ## Skills required to join team
