@@ -43,8 +43,9 @@ IF YOU ARE A GIRL SOMEONE HARASS/BLACKMAILS YOU ONLINE , MAIL AT cyberbabaresear
 ## Skills required to join team
 
 - Social Engeneering 
-- basic tools knowdledge 
-- cyber security related knowledge 
+- Basic tools knowdledge 
+- cyber security related knowledge
+  or any other skills you have 
 
 ## Contact
 Email: cyberbabaresearchteam@proton.me
