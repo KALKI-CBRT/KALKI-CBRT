@@ -29,7 +29,7 @@ We are a cybersecurity research team focused on:
 - Takedown such groups which leaks sexually explicited pictures
 - Protecting Good peoples on earth
 
-IF YOU ARE A GIRL SOMEONE HARASS/BLACKMAILS YOU ONLINE , MAIL AT cyberbabaresearchteam@proton.me with every details you know about him mention platform
+IF SOMEONE HARASS/BLACKMAILS YOU ONLINE , MAIL AT CBRT@OUTLOOK.COM with every details you know about him mention platform
 
 ## CBRT (CYBER BABA RESEARCH TEAM)
                    
